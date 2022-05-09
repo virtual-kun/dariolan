@@ -1,2 +1,0 @@
-# dariolan
-hanya untuk kamu
